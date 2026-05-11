@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Photoshop for macOS template with Adobe Photoshop for macOS exclusive Template: real-time preview & content-aware fill. Featuring real-time preview and
 
 
 
